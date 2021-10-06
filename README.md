@@ -1,4 +1,4 @@
-### Hi there, I'm merlex 🤘
+### Hi there, I'm merlex 🤘<img src="https://komarev.com/ghpvc/?username=merlex&label=Profile%20views&color=blue&style=flat"/>
 ---
 
 ## :trophy: My Github Stats
